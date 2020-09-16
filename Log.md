@@ -1,0 +1,1 @@
+09.16.We, 16:30 - 18:00 Nic, Wyatt, and Charlie 90 minutes
