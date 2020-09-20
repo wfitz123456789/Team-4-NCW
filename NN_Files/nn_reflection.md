@@ -1,0 +1,1 @@
+Our team seems to have a good balance of experience. Wyatt and I were able to work through the assignment with relative ease, though our first attempt at pair programming was admittedly a bit clunky. Charlie will need to catch up before we're able to put him in the driver's seat, though. That said, we should be able to navigate the coming projects well enough.
